@@ -2,4 +2,4 @@
 Группа: 08-2023
 Студент: Кузнецов Дмитрий (Kuznetsov Dmitriy)
 Имя в блоге: ДмитрийК
-mail:dmitry.o.kuznetsov@tele2.ru
+mail:dmitry.o.kuznetsov@.......
